@@ -1,1 +1,1 @@
-![jjk-jujutsu-kaisen](https://github.com/user-attachments/assets/041020f0-ed17-4792-8ea0-7353cf986691)
+![minazuki](https://github.com/user-attachments/assets/9891a005-ea8c-4a7b-b191-fc0a8f2bcade)
